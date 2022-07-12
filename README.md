@@ -3,14 +3,17 @@
 
 # Certificate 2 
 ![Screenshot (19)](https://user-images.githubusercontent.com/77200703/178366535-da4747ac-ae46-4fdd-adb5-3319dbaed34c.png)
+https://drive.google.com/file/d/1xo0RJy5ODSAK7VYAUk8SthQClBjrc-EU/view?usp=sharing
 
 # Certificate 3 - Google online marketing
 ![Screenshot (20)](https://user-images.githubusercontent.com/77200703/178367048-1d6a0aa9-16e0-4150-9f63-dc2cae4b6f83.png)
+https://drive.google.com/file/d/1sQQkS2irqSJ8LpirEceW8aXetNlk_jHy/view?usp=sharing
 
 # Certificate 4 - Stem international olympiads (distinction)
 
 # Certificate 5 - Blockchain Basics
 ![Screenshot (21)](https://user-images.githubusercontent.com/77200703/178513582-94759a52-7d05-4871-b42c-ee082eecb968.png)
+https://drive.google.com/file/d/1YoK_6HgTDfMh2fJTsb8F6B4dvjezt0G8/view?usp=sharing
 
 # Certificate 6 - Youtube 
 ![Screenshot (22)](https://user-images.githubusercontent.com/77200703/178514281-fc5aefd8-d83f-4353-b056-664832548b2d.png)
